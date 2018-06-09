@@ -1,8 +1,8 @@
 ---
 layout: page
-title: simple site
-tagline: Easy websites with GitHub Pages
-description: Minimal tutorial on making a simple website with GitHub Pages
+title: Pauline's Bat Mitzvah
+tagline: Information and FAQ on Pauline's Bat Mitzvah Celebration
+description: All the stuff you need to know. 
 ---
 
 [Github Pages](https://pages.github.com) provide a simple way to make a
