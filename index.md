@@ -50,3 +50,7 @@ Food and fun! A DJ will be spnning the tunes for fun and dancing. The hall is ve
 
 - [What is a Bat Mitzvah? What to expect at the service](/whatIsBatMitzvah)
 - [Information for out of town guests](/outOfTown)
+
+Problems ore more questions, send us e-mail at ...
+
+Source for this page is at https://github.com/lyonsquark/lyonsquark.github.io . 
