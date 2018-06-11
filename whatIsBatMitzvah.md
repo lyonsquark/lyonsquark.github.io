@@ -2,6 +2,9 @@
 
 A FAQ for what to expect at the Saturday morning service.
 
+- **What's a Bat Mitzvah?**<BR/>
+TBD
+
 - **I'm not Jewish, do I need to come to the Saturday morning service at Oak Park Temple?**<BR/>
 Yes, we very much hope that you will come to the service. The service is where Pauline performs with the support of her family and friends. It is important that you be there with her to celebrate this milestone that she has worked so hard to achieve. 
 
