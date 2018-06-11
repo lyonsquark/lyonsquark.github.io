@@ -38,7 +38,7 @@ Please drop off your child at Oak Park Temple a little before 10am Saturday morn
 
 ### Will I be fed?
 
-You have to ask? Of course you'll be fed! Directly after the Saturday morning service small sandwiches and other finger food will be served at the temple to keep you sustained as you drive from Oak Park to Countryside (or if you are a kid without your parents, ride the bus we are providing). The luncheon will start soon after everyone arrives at the banquet hall. The caterer is from the excellent Capri Restaurant (Italian food) in Burr Ridge. We promise you will not go hungry! 
+YES! Directly after the Saturday morning service small sandwiches and other finger food will be served at the temple to keep you sustained as you drive from Oak Park to Countryside (or if you are a kid without your parents, ride the bus we are providing). The luncheon will start soon after everyone arrives at the banquet hall. The caterer is from the excellent Capri Restaurant (Italian food) in Burr Ridge. We promise you will not go hungry! 
 
 Please let us know ahead of time if you have any dietary restrictions.
 
