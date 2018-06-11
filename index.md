@@ -1,3 +1,6 @@
+# DRAFT DRAFT DRAFT DRAFT
+Dates and times are not real yet! 
+
 # Pauline's Bat Mitzvah
 Saturday, August 18, 2018 (Service 10am-noon, Party 1pm-5pm)
 
