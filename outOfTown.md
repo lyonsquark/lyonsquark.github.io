@@ -29,7 +29,7 @@ We have several favorite ethnic dining options that you may want to try Thursday
   - Taste Indian Chinese Cuisine,  2117 63rd St, Downers Grove, IL 60516, (630) 541-9872. Unusual and super-spicy (but delicious) dishes. Too spicy for Pauline, but we love it. 
   - New Korea Garden, 204 N Cass Ave, Westmont, IL 60559, (630) 852-1900. Great Korean dishes and BBQ. We've been going here since before Pauline was born. A top favorite. 
   - Cida Thai, 5435 South La Grange Road, Countryside, IL 60525, (708) 482-0706. Awesome Thai food. Be sure to get the chicken soup.
-  - Bohemian Crystal, [web](http://www.bohemiancrystal.net), 639 Blackhawk Dr, Westmont, IL 60559, (630) 789-1981. Hearty Eastern European cuisine. A fun place.
+  - Bohemian Crystal, [web](http://www.bohemiancrystal.net), 639 Blackhawk Dr, Westmont, IL 60559, (630) 789-1981. Hearty  Bohemian (Czech) European cuisine. Lots of meat. Few vegetables.
   - Sawa's Old Warsaw Restaurant, 9200 W Cermak Rd, Broadview, IL 60155, (708) 343-9040. A little farther than the others (about 20 minutes). Terrific Polish Smorgasbord. Very authentic and fun. 
   
 - **What's there to do in Chicago?**<BR>
