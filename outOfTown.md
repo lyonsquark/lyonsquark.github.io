@@ -25,7 +25,7 @@ The Illinois Tollway is a fact of life here. If you are arriving at Midway you c
 We have several favorite ethnic dining options that you may want to try Thursday night and/or if you are staying Sunday.
 
   - Taste of India, 7243 Kingery Hwy (Route 83), Willowbrook, IL 60527, (630) 323-1333. The best Indian food around. Great buffet on weekends. 
-  - Chinese Kitchen, 6551 S Cass Ave, Westmont, IL 60559, (630) 968-3828. Has become our favorite Chinese restaurant. Be sure to ask for the "other" menu with more authentic, unusual, and terrific dishes (it's in English).
+  - Chinese Kitchen, 6551 S Cass Ave, Westmont, IL 60559, (630) 968-3828. Has become a favorite Chinese restaurant. Be sure to ask for the "other" menu with more authentic, unusual, and terrific dishes (it's in English).
   - Taste Indian Chinese Cuisine,  2117 63rd St, Downers Grove, IL 60516, (630) 541-9872. Unusual and super-spicy (but delicious) dishes. Too spicy for Pauline, but we love it. 
   - New Korea Garden, 204 N Cass Ave, Westmont, IL 60559, (630) 852-1900. Great Korean dishes and BBQ. We've been going here since before Pauline was born. A top favorite. 
   - Cida Thai, 5435 South La Grange Road, Countryside, IL 60525, (708) 482-0706. Awesome Thai food. Be sure to get the chicken soup.
