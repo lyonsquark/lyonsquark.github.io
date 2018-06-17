@@ -1,6 +1,6 @@
 # Information for Out of Town Guests
 
-We're so glad you are making the trip to Chicago for Pauline's Bat Mitzvah. Here's some information.
+> We're so glad you are making the trip to Chicago for Pauline's Bat Mitzvah. Here's some information.
 
 ### When should I arrive?
 We are hosting a dinner at Oak Park Temple for you and other out of town guests before Friday night services on 8/17 at 6:30pm. It would be great if you could attend. If you need to arrive later on Friday, then note that Friday night services begin at 8pm and the Bat Mitzvah service begins at 10am on Saturday.

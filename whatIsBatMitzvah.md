@@ -1,8 +1,10 @@
 # What is a Bat Mitzvah?
 
+> Here is some information on what to expect at Pauline's Bat Mitzvah service. 
+
 ### What is a Bat Mitzvah?
 When a boy reaches age 13 or a girl reaches age 12, he or she becomes *Bar/Bat Mitzvah*, that is a full fledged member of the Jewish community and can fully participate in religious ceremonies. It is customary to celebrate this coming of age by being "called to the Torah" and chant a particular portion of the Torah in front of the community of congregants, friends and family. Being written in Hebrew, reading the Torah takes many years of study and is part of religious education. Pauline has been learning since first grade. The reading will occur during the Shabbat (Sabbath) morning service that she will also help lead. You are invited to attend this service to support Pauline as she reaches this important milestone. Pauline will also give a D'var Torah, a speech with her interpretation of the Torah portion. See [here](https://www.myjewishlearning.com/article/bar-and-bat-mitzvah-101/) for more information. Her Torah portion (determined by the date of the service) is [Shoftim](https://www.myjewishlearning.com/torah-portions/parashat-shoftim/). 
-   - Note that information in the web links above state that guests and congregants often arrive late to services. Every synagogue is different - at Oak Park Temple the custom is to arrive on time (services start at 10am) and not be late. 
+   - Note that information in the web links above state that guests and congregants often arrive late to services. Every synagogue is different - at Oak Park Temple the custom is to arrive on time (services start at 10am) and to not be late. 
 
 ### I'm not Jewish, do I need to come to the Saturday morning service at Oak Park Temple?
 Yes, we very much hope that you will come to the service. The service is where Pauline performs with the support of her family and friends. It is important that you be there with her to celebrate this milestone that she has worked so hard to achieve. See [here](https://www.myjewishlearning.com/article/what-a-barbat-mitzvah-guest-needs-to-know/) for some good information on what you as a guest can expect (please come on time to the service - see note above). 

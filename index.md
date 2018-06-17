@@ -1,5 +1,6 @@
 # Pauline's Bat Mitzvah
-Saturday, August 18, 2018 (Service 10am-noon, Party 1pm-5pm)
+
+> **Saturday, August 18, 2018 (Service 10am-noon, Party 1pm-5pm)**
 
 We are so happy that you may come to Pauline's celebration and we can't wait to see you! This web site has information about Pauline's Bat Mitzvah celebration. 
 
@@ -9,24 +10,24 @@ If you have a question that is not answered here, do not hesitate to contact us 
 
 Here is what is happening. 
 
-| Who   | What   | When    | Where |
-|:-------|:------|:--------|-------|
-| Out of town guests |  Friday night dinner | Friday 8/17 6:30pm | Oak Park Temple |
-| Out of town guests and anyone else | Friday night service | Friday 8/17 8-10pm | Oak Park Temple | 
-| **Everyone** | **Bat Mitzvah Service** | Saturday 8/18 10am | Oak Park Temple | 
-| **Everyone** | **Luncheon and Party** | Saturday 8/18 1pm | Capri Banquets & Catering, Countryside | 
-| Out of town guests | Sunday morning breakfast | Sunday 8/19 10am  | Our house, Willowbrook | 
+| Who   | What   | When    | Where   |
+|:-------|:------|:--------|:--------|
+| Out of town guests |  Friday night dinner | Friday 8/17 <BR/> 6:30pm | Oak Park Temple |
+| Out of town guests <BR/> and anyone else who wants to come| Friday night service | Friday 8/17 <BR/> 8pm-9:30pm | Oak Park Temple | 
+| **Everyone** | **Bat Mitzvah Service** | Saturday 8/18 <BR/> 10am - noon | Oak Park Temple | 
+| **Everyone** | **Luncheon and Party** | Saturday 8/18 <BR/> 1pm - 5pm | Capri Banquets & Catering, Countryside | 
+| Out of town guests | Sunday morning breakfast | Sunday 8/19 <BR/> 10am -  | Our house, Willowbrook | 
 
 ## Quick important information
 
 ### Where do I go?
 
-**Oak Park Temple**: Address is `1235 Harlem Ave, Oak Park, IL 60302`. The office phone number is `(708) 386-3937`. Also see https://oakparktemple.com . Drop off is directly in front of the temple on Harlem Ave. or on the north side on Berkshire St., just past the building. There is a very small parking lot off of Harlem just before the temple building. If full, turn left at the end of the lot and proceed down the alley (watch for pedestrians at the sidewalk) and turn right onto Berkshire St. Then street park. Alternatively, pass the small parking lot on Harlem and turn right just past the temple building onto Berkshire St. Then street park. 
+**Oak Park Temple**: `1235 Harlem Ave, Oak Park, IL 60302`. Phone: `(708) 386-3937`. Also see https://oakparktemple.com . Drop off is directly in front of the temple on Harlem Ave. or on the north side on Berkshire St., just past the building. There is a very small parking lot off of Harlem just before the temple building. If full, turn left at the end of the lot and proceed down the alley (watch for pedestrians at the sidewalk) and turn right onto Berkshire St. Then street park. Alternatively, pass the small parking lot on Harlem and turn right just past the temple building onto Berkshire St. Then street park. 
 - [Map](https://www.google.com/maps/place/Oak+Park+Temple/@41.9027412,-87.8071949,17z/data=!3m1!4b1!4m5!3m4!1s0x880fcb321af07a6b:0xb064a1520bd6d3fb!8m2!3d41.9027372!4d-87.8050062)
 - [Directions](https://www.google.com/maps/dir/Best+Western+Plus+Chicagoland+-+Countryside,+Joliet+Road,+Countryside,+IL/Oak+Park+Temple,+1235+Harlem+Ave,+Oak+Park,+IL+60302/@41.8397401,-87.9136227,12z/data=!3m1!4b1!4m16!4m15!1m5!1m1!1s0x880e4835b8d4f883:0x5e6eedb10146be0b!2m2!1d-87.8730132!2d41.777754!1m5!1m1!1s0x880fcb321af07a6b:0xb064a1520bd6d3fb!2m2!1d-87.8050062!2d41.9027372!2m1!2b1!3e0) from Best Western Plus to Oak Park Temple (no tolls)
 - [Directions](https://www.google.com/maps/dir/Crowne+Plaza+Chicago+SW+-+Burr+Ridge,+S+Frontage+Road,+Burr+Ridge,+IL/Oak+Park+Temple,+1235+Harlem+Ave,+Oak+Park,+IL+60302/@41.8246462,-87.9511171,12z/data=!3m1!4b1!4m16!4m15!1m5!1m1!1s0x880e48babe2fc1f3:0x5e66b2dbb4a574e3!2m2!1d-87.9215302!2d41.7534609!1m5!1m1!1s0x880fcb321af07a6b:0xb064a1520bd6d3fb!2m2!1d-87.8050062!2d41.9027372!2m1!2b1!3e0) from Crowne Plaza to Oak Park Temple (no tolls)
 
-**Capri Banquets & Catering**: Address is `6240 Joliet Rd, Countryside, IL 60525`. The phone number is `(708) 571-1000`. Also see http://capribanquets.com/about.html . The hall has a very large parking lot. 
+**Capri Banquets & Catering**: `6240 Joliet Rd, Countryside, IL 60525`. Phone: `(708) 571-1000`. Also see http://capribanquets.com/about.html . The hall has a very large parking lot. 
 - [Map](https://www.google.com/maps/place/Capri+Banquets+%26+Catering/@41.776221,-87.8742897,17z/data=!3m1!4b1!4m5!3m4!1s0x880e48342cbf4e25:0x8d23463c294df84d!8m2!3d41.776217!4d-87.872101)
 - [Directions](https://www.google.com/maps/dir/Oak+Park+Temple,+Harlem+Avenue,+Oak+Park,+IL/Capri+Banquets+%26+Catering,+6240+Joliet+Rd,+Countryside,+IL+60525/@41.8327431,-87.9074904,12z/data=!3m1!4b1!4m16!4m15!1m5!1m1!1s0x880fcb321af07a6b:0xb064a1520bd6d3fb!2m2!1d-87.8050062!2d41.9027372!1m5!1m1!1s0x880e48342cbf4e25:0x8d23463c294df84d!2m2!1d-87.872101!2d41.776217!2m1!2b1!3e0) **from Oak Park Temple** to Capri (no tolls)
 - [Directions](https://www.google.com/maps/dir/Capri+Banquets+%26+Catering,+6240+Joliet+Rd,+Countryside,+IL+60525/Crowne+Plaza+Chicago+SW+-+Burr+Ridge,+S+Frontage+Road,+Burr+Ridge,+IL/@41.7612081,-87.9143252,14z/data=!3m1!4b1!4m16!4m15!1m5!1m1!1s0x880e48342cbf4e25:0x8d23463c294df84d!2m2!1d-87.872101!2d41.776217!1m5!1m1!1s0x880e48babe2fc1f3:0x5e66b2dbb4a574e3!2m2!1d-87.9215302!2d41.7534609!2m1!2b1!3e0) from Capri back to Crowne Plaza (no tolls)
