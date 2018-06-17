@@ -1,7 +1,9 @@
 # Pauline's Bat Mitzvah
 Saturday, August 18, 2018 (Service 10am-noon, Party 1pm-5pm)
 
-We are so happy that you may come to Pauline's celebration and we can't wait to see you! This web site has information about Pauline's Bat Mitzvah celebration. If you have a question that is not answered here, do not hesitate to contact us at `info at paulinebatmitzvah.com` . 
+We are so happy that you may come to Pauline's celebration and we can't wait to see you! This web site has information about Pauline's Bat Mitzvah celebration. 
+
+If you have a question that is not answered here, do not hesitate to contact us at `info at paulinebatmitzvah.com` . 
 
 ## Time line of the celebration
 
