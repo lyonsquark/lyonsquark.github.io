@@ -3,19 +3,19 @@ Saturday, August 18, 2018 (Service 10am-noon, Party 1pm-5pm)
 
 We are so happy that you may come to Pauline's celebration and we can't wait to see you! This web site has information about Pauline's Bat Mitzvah celebration. 
 
-If you have a question that is not answered here, do not hesitate to contact us at `info at paulinebatmitzvah.com` . 
+If you have a question that is not answered here, do not hesitate to contact us at `info@paulinebatmitzvah.com`
 
 ## Time line of the celebration
 
 Here is what is happening. 
 
-| What   | Who   | When    | Where |
+| Who   | What   | When    | Where |
 |:-------|:------|:--------|-------|
-| Friday night dinner | Out of town guests | Friday 6:30pm | Oak Park Temple |
-| Friday night service | Out of town guests and anyone else | Friday 8-10pm | Oak Park Temple | 
-| Bat Mitzvah Service | **Everyone** | Saturday 10am | Oak Park Temple | 
-| Luncheon and Party | **Everyone** | Saturday 1pm | Capri Banquets & Catering, Countryside | 
-| Sunday morning breakfast | Out of town guests | Sunday 10am | Our house, Willowbrook | 
+| Out of town guests |  Friday night dinner | Friday 8/17 6:30pm | Oak Park Temple |
+| Out of town guests and anyone else | Friday night service | Friday 8/17 8-10pm | Oak Park Temple | 
+| **Everyone** | **Bat Mitzvah Service** | Saturday 8/18 10am | Oak Park Temple | 
+| **Everyone** | **Luncheon and Party** | Saturday 8/18 1pm | Capri Banquets & Catering, Countryside | 
+| Out of town guests | Sunday morning breakfast | Sunday 8/19 10am  | Our house, Willowbrook | 
 
 ## Quick important information
 
@@ -57,6 +57,4 @@ Food and fun! A DJ will be spinning the tunes for fun and dancing. The hall is v
 - [What is a Bat Mitzvah? What to expect at the service](/whatIsBatMitzvah)
 - [Information for out of town guests](/outOfTown)
 
-Problems or more questions, send us e-mail at `info at paulinebatmitzvah.com` . 
-
-Source for this page is at https://github.com/lyonsquark/lyonsquark.github.io . 
+Problems or more questions, send us e-mail at `info@paulinebatmitzvah.com` 
