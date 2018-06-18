@@ -12,11 +12,11 @@ Here is what is happening.
 
 | Who   | What   | When    | Where   |
 |:-------|:------|:--------|:--------|
-| Out of town guests |  Friday night dinner | Friday 8/17 <BR/> 6:30pm | Oak Park Temple |
+| Out of town guests |  Friday night dinner | Friday 8/17 <BR/> 6:30pm (time may change)| Oak Park Temple |
 | Out of town guests <BR/> and anyone else who wants to come| Friday night service | Friday 8/17 <BR/> 8pm-9:30pm | Oak Park Temple | 
 | **Everyone** | **Bat Mitzvah Service** | Saturday 8/18 <BR/> 10am - noon | Oak Park Temple | 
 | **Everyone** | **Luncheon and Party** | Saturday 8/18 <BR/> 1pm - 5pm | Capri Banquets & Catering, Countryside | 
-| Out of town guests | Sunday morning breakfast | Sunday 8/19 <BR/> 10am -  | Our house, Willowbrook | 
+| Out of town guests | Sunday morning breakfast | Sunday 8/19 <BR/> 10am (time may change) -  | Our house, Willowbrook | 
 
 ## Quick important information
 

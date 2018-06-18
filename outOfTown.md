@@ -3,7 +3,7 @@
 > We're so glad you are making the trip to Chicago for Pauline's Bat Mitzvah. Here's some information.
 
 ### When should I arrive?
-We are hosting a dinner at Oak Park Temple for you and other out of town guests before Friday night services on 8/17 at 6:30pm. It would be great if you could attend. If you need to arrive later on Friday, then note that Friday night services begin at 8pm and the Bat Mitzvah service begins at 10am on Saturday.
+We are hosting a dinner at Oak Park Temple for you and other out of town guests before Friday night services on 8/17 at 6:30pm (time may change). It would be great if you could attend. If you need to arrive later on Friday, then note that Friday night services begin at 8pm and the Bat Mitzvah service begins at 10am on Saturday.
 
 ### Where should I stay (room blocks)?
 We have arranged for room blocks at two hotels at significant savings over regular rates. **You must reserve before July 19 to receive the block rates.** Rates below do not include taxes.
