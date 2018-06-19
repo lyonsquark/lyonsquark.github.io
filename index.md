@@ -18,9 +18,9 @@ Here is what is happening.
 | **Everyone** | **Luncheon and Party** | Saturday 8/18 <BR/> 1pm - 5pm | Capri Banquets & Catering, Countryside | 
 | Out of town guests | Sunday morning breakfast | Sunday 8/19 <BR/> 10am (time may change) -  | Our house, Willowbrook | 
 
-## Quick important information
+## IMPORTANT INFORMATION
 
-### Where do I go?
+### Locations of events (addresses & directions)
 
 **Oak Park Temple**: `1235 Harlem Ave, Oak Park, IL 60302`. Phone: `(708) 386-3937`. Also see https://oakparktemple.com . Drop off is directly in front of the temple on Harlem Ave. or on the north side on Berkshire St., just past the building. There is a very small parking lot off of Harlem just before the temple building. If full, turn left at the end of the lot and proceed down the alley (watch for pedestrians at the sidewalk) and turn right onto Berkshire St. Then street park. Alternatively, pass the small parking lot on Harlem and turn right just past the temple building onto Berkshire St. Then street park. 
 - [Map](https://www.google.com/maps/place/Oak+Park+Temple/@41.9027412,-87.8071949,17z/data=!3m1!4b1!4m5!3m4!1s0x880fcb321af07a6b:0xb064a1520bd6d3fb!8m2!3d41.9027372!4d-87.8050062)
@@ -35,13 +35,13 @@ Here is what is happening.
 
 ### When should I arrive Saturday morning at Oak Park Temple?
 
-Please arrive or drop off your child at Oak Park Temple a little before 10am. Note that this weekend is the Chicago Air and Water show. There will be about a million people (really!) at the Chicago lakefront each day for the show, so tollway/expressway traffic may be heavier than for a usual Saturday morning. With no traffic, it takes us 30 minutes to drive from our house in Willowbrook to Oak Park Temple. That travel time doubles in heavy traffic. A phone app with accurate traffic information, like Waze, is very helpful. Check your arrival time well in advance to see if you have to leave earlier than you anticipated. That being said, if you end up arriving late then enter the sanctuary and find a seat quietly. We'll be glad that you made it. 
+Please arrive or drop off your child at Oak Park Temple no later than 9:45am. Note that this weekend is the Chicago Air and Water show. There will be about a million people (really!) at the Chicago lakefront each day for the show, so tollway/expressway traffic may be heavier than for a usual Saturday morning. With no traffic, it takes us 30 minutes to drive from our house in Willowbrook to Oak Park Temple. That travel time doubles in heavy traffic. A phone app with accurate traffic information, like Waze, is very helpful. Check your arrival time well in advance to see if you have to leave earlier than you anticipated. That being said, if you end up arriving late then enter the sanctuary and find a seat quietly. We'll be glad that you made it. 
 
 Driving from Oak Park Temple to Capri Banquets & Catering in Countryside should take about 20-30 minutes. 
 
 ### What if I'm dropping off/picking up my child?
 
-Please drop off your child at Oak Park Temple a little before 10am Saturday morning. We will provide transportation from services at Oak Park to the luncheon/party in Countryside. Please pick up your child at **Capri Banquets & Catering** in Countryside (address above) no later than 5pm. 
+Please drop off your child at Oak Park Temple no later than 9:45am Saturday morning. We will provide transportation from services at Oak Park to the luncheon/party in Countryside. Please pick up your child at **Capri Banquets & Catering** in Countryside (address above) at 5pm. The party may continue to around 5:30pm, so stop in and say hi.  
 
 ### Will I be fed?
 
