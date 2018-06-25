@@ -14,7 +14,7 @@ If you have a question that is not answered here, do not hesitate to contact us 
 [Food](#will-i-be-fed)<BR/>
 [Party](#what-will-be-at-the-party)<BR/>
 
-[Information for Out of Town Guests](/outOfTown)
+[Information for Out of Town Guests](/outOfTown)<BR/>
 [Questions about the Bat Mitzvah Service](/whatIsBatMitzvah)
 
 ## Time line of the celebration
