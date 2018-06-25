@@ -2,10 +2,12 @@
 
 > We're so glad you are making the trip to Chicago for Pauline's Bat Mitzvah. Here's some information.
 
-[When should I arrive](#when-should-i-arrive)<BR/>
+[When to arrive](#when-should-i-arrive)<BR/>
 [Hotel room blocks](#hotel-room-blocks)<BR/>
-[Is Midway or O'Hare airport better?][#is-it-better-to-fly-into-midway-or-ohare]<BR/>
-[Car rental?](#will-i-need-to-rent-a-car)<BR/>
+[Is Midway or O'Hare airport better](#is-it-better-to-fly-into-midway-or-ohare)<BR/>
+[Car rental](#will-i-need-to-rent-a-car)<BR/>
+[Paying tolls](#will-i-need-to-pay-tolls)<BR/>
+[Restaurants](#i-want-to-eat-something-that-i-cant-get-at-home)<BR/>
 
 ### When should I arrive?
 We are hosting a dinner at Oak Park Temple for you and other out of town guests before Friday night services on 8/17 at 6:30pm (time may change). It would be great if you could attend. If you need to arrive later on Friday, then note that Friday night services begin at 8pm and the Bat Mitzvah service begins at 10am on Saturday.
