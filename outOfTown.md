@@ -2,10 +2,15 @@
 
 > We're so glad you are making the trip to Chicago for Pauline's Bat Mitzvah. Here's some information.
 
+[When should I arrive](#when-should-i-arrive)<BR/>
+[Hotel room blocks](#hotel-room-blocks)<BR/>
+[Is Midway or O'Hare airport better?][#is-it-better-to-fly-into-midway-or-ohare]<BR/>
+[Car rental?](#will-i-need-to-rent-a-car)<BR/>
+
 ### When should I arrive?
 We are hosting a dinner at Oak Park Temple for you and other out of town guests before Friday night services on 8/17 at 6:30pm (time may change). It would be great if you could attend. If you need to arrive later on Friday, then note that Friday night services begin at 8pm and the Bat Mitzvah service begins at 10am on Saturday.
 
-### Where should I stay (room blocks)?
+### Hotel room blocks
 We have arranged for room blocks at two hotels at significant savings over regular rates. **You must reserve before July 19 to receive the block rates.** Rates below do not include taxes.
 
   - Best Western Plus Chicagoland - Countryside, [web](https://www.bestwestern.com/en_US/book/hotels-in-countryside/best-western-plus-chicagoland-countryside/propertyCode.14182.html), 6251 Joliet Road Countryside, Illinois 60525, (708) 354-5200. Use code `Lyon Bat-Mitzvah`. $99/night and includes continental breakfast. There is no swimming pool. This hotel is across the street from the banquet hall. It is about 15 minutes from our house. It is close to La Grange road with many restaurant options. 
