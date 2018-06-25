@@ -10,7 +10,7 @@ If you have a question that is not answered here, do not hesitate to contact us 
 [Time line of the celebration](#time-line-of-the-celebration)<BR/>
 [Location of events (addresses & directions)](#locations-of-events)<BR/>
 [When to arrive Saturday morning at Oak Park Temple](#when-should-i-arrive-saturday-morning-at-oak-park-temple)<BR/>
-[Dropping off/picking up kids](#what-if-i'm-dropping-off-picking-up-my-child)<BR/>
+[Dropping off/picking up kids](#what-if-i'm-droppingoff-picking-up-my-child)<BR/>
 [Food](#will-i-be-fed)<BR/>
 [Party](#what-will-be-at-the-party)<BR/>
 
