@@ -6,6 +6,14 @@ We are so happy that you may come to Pauline's celebration and we can't wait to 
 
 If you have a question that is not answered here, do not hesitate to contact us at `info@paulinebatmitzvah.com`
 
+## Contents of this page:
+[Time line of the celebration](#time-line-of-the-celebration)<BR/>
+[Location of events (addresses & directions)](#locations-of-events)<BR/>
+[When to arrive Saturday morning at Oak Park Temple](#when-should-i-arrive-saturday-morning-at-oak-park-temple)<BR/>
+[Dropping off/picking up kids](#what-if-i'm-dropping-off-picking-up-my-child)<BR/>
+[Food](#will-i-be-fed)<BR/>
+[Party](#what-will-be-at-the-party)<BR/>
+
 ## Time line of the celebration
 
 Here is what is happening. 
@@ -20,7 +28,7 @@ Here is what is happening.
 
 ## IMPORTANT INFORMATION
 
-### Locations of events (addresses & directions)
+### Locations of events
 
 **Oak Park Temple**: `1235 Harlem Ave, Oak Park, IL 60302`. Phone: `(708) 386-3937`. Also see https://oakparktemple.com . Drop off is directly in front of the temple on Harlem Ave. or on the north side on Berkshire St., just past the building. There is a very small parking lot off of Harlem just before the temple building. If full, turn left at the end of the lot and proceed down the alley (watch for pedestrians at the sidewalk) and turn right onto Berkshire St. Then street park. Alternatively, pass the small parking lot on Harlem and turn right just past the temple building onto Berkshire St. Then street park. 
 - [Map](https://www.google.com/maps/place/Oak+Park+Temple/@41.9027412,-87.8071949,17z/data=!3m1!4b1!4m5!3m4!1s0x880fcb321af07a6b:0xb064a1520bd6d3fb!8m2!3d41.9027372!4d-87.8050062)
