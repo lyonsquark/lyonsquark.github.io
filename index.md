@@ -15,7 +15,7 @@ Here is what is happening.
 | Who   | What   | When    | Where   |
 |:-------|:------|:--------|:--------|
 | Out of town guests who are here |  Friday night dinner | Friday 8/17 <BR/> 6:30pm (time may change)| Oak Park Temple |
-| Out of town guests who are here <BR/> and anyone else who wants to come| Friday night service | Friday 8/17 <BR/> 8pm-9:30pm | Oak Park Temple | 
+| Out of town guests who are here and anyone else who wants to come| Friday night service | Friday 8/17 <BR/> 8pm-9:30pm | Oak Park Temple | 
 | <span style="color:red">Everyone</span> | <span style="color:red">Bat Mitzvah Service</span> | <span style="color:red">Saturday 8/18 <BR/> 10am - noon</span> | <span style="color:red">Oak Park Temple</span> | 
 | <span style="color:red">Everyone</span> | <span style="color:red">Luncheon and Party</span> | <span style="color:red">Saturday 8/18 <BR/> 1pm - 5pm</span> | <span style="color:red">Capri Banquets & Catering, Countryside</span> | 
 | Out of town guests | Sunday morning brunch | Sunday 8/19 <BR/> Time to be determined  | Location to be determined | 
