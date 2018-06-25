@@ -4,10 +4,10 @@
 
 [When to arrive](#when-should-i-arrive)<BR/>
 [Hotel room blocks](#hotel-room-blocks)<BR/>
-[Is Midway or O'Hare airport better](#is-it-better-to-fly-into-midway-or-o'hare)<BR/>
+[Is Midway or O'Hare airport better](#is-it-better-to-fly-into-midway-or-o\'hare)<BR/>
 [Car rental](#will-i-need-to-rent-a-car)<BR/>
 [Paying tolls](#do-i-have-to-pay-tolls)<BR/>
-[Restaurants](#i-want-to-eat-something-that-i-can't-get-at-home)<BR/>
+[Restaurants](#i-want-to-eat-something-that-i-can\'t-get-at-home)<BR/>
 [BACK TO MAIN PAGE](/index)
 
 ### When should I arrive?
