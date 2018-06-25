@@ -6,7 +6,7 @@
 [Hotel room blocks](#hotel-room-blocks)<BR/>
 [Is Midway or O'Hare airport better](#is-it-better-to-fly-into-midway-or-ohare)<BR/>
 [Car rental](#will-i-need-to-rent-a-car)<BR/>
-[Paying tolls](#will-i-need-to-pay-tolls)<BR/>
+[Paying tolls](#do-i-have-to-pay-tolls)<BR/>
 [Restaurants](#i-want-to-eat-something-that-i-cant-get-at-home)<BR/>
 
 ### When should I arrive?
@@ -36,7 +36,7 @@ The Illinois Tollway is a fact of life here. If you are arriving at Midway you c
 
 All tollways are marked as such. I-55 (Stevenson Expressway) and I-290 (Eisenhower Expressway) have no tolls. All other expressways (I-88/Regan, I-294/Tri-State, I-355/Veterans) are tollways. 
 
-### I want to eat someting that I can't get at home
+### I want to eat something that I can't get at home
 We have several favorite ethnic dining options that you may want to try Thursday night and/or if you are staying Sunday.
 
   - Taste of India, 7243 Kingery Hwy (Route 83), Willowbrook, IL 60527, (630) 323-1333. The best Indian food around. Great buffet on weekends. 
