@@ -1,6 +1,6 @@
 Quick Links (click below):
 
-[Main Information (Home)](/index)
+[Main Information (Home Page)](/index)
 
 [Out of Town Guest Information](/outOfTown)
 
