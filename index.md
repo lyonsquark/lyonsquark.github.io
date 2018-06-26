@@ -1,6 +1,6 @@
 # Pauline's Bat Mitzvah
 
-<span style="font-size:0.8em">Quick Links for this page (click): [Times of events](/index#time-line-of-the-celebration) | [Oak Park Temple address/directions](/index#oak-park-temple) | [Capri Banquets & Catering address/directions](/index#capri-banquets-catering)</span>
+<span style="font-size:0.8em">Quick Links for this page (click): [Times of events](#time-line-of-the-celebration) | [Oak Park Temple address/directions](#oak-park-temple) | [Capri Banquets & Catering address/directions](#capri-banquets-catering)</span>
 
 ![](pauline.jpg)
 
