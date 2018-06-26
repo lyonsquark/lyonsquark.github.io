@@ -1,5 +1,7 @@
 # Pauline's Bat Mitzvah
 
+Quick Links for this page (click): [Times of events](/index#time-line-of-the-celebration) | [Oak Park Temple address/directions](/index#oak-park-temple) | [Capri Banquets & Catering address/directions](/index#capri-banquets-catering)
+
 ![](pauline.jpg)
 
 > **Saturday, August 18, 2018 (Service 10am-noon, Party 1pm-5pm)**
