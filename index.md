@@ -20,7 +20,7 @@ Here is what is happening.
 | Out of town guests who are here and anyone else who wants to come| Friday night service | Friday 8/17 <BR/> 8pm-9:30pm | Oak Park Temple | 
 | <span style="color:red">Everyone</span> | <span style="color:red">Bat Mitzvah Service</span> | <span style="color:red">Saturday 8/18 <BR/> 10am - noon</span> | <span style="color:red">Oak Park Temple</span> | 
 | <span style="color:red">Everyone</span> | <span style="color:red">Luncheon and Party</span> | <span style="color:red">Saturday 8/18 <BR/> 1pm - 5pm</span> | <span style="color:red">Capri Banquets & Catering, Countryside</span> | 
-| Out of town guests | Tour of Fermilab | Sunday 8/19 <BR/> 10:30am  | Details to be provided | 
+| Out of town guests | Tour of Fermilab | Sunday 8/19 <BR/> 10:30am  | Details to be provided <BR/> You must bring closed-toe shoes for the tour (no sandals)| 
 | Out of town guests | Visit & Tour of Shedd Aquarium | Monday 8/20 <BR/> 10am | Details to be provided |
 
 ### Locations of events
