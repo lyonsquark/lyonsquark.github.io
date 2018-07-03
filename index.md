@@ -46,9 +46,11 @@ Please arrive or drop off your child at Oak Park Temple no later than 9:45am. No
 
 Driving from Oak Park Temple to Capri Banquets & Catering in Countryside should take about 20-30 minutes. 
 
+Note that I may send out an e-mail to those who are coming from particular areas (e.g. near Fermilab; near Cass Jr. High) to facilitate car pooling. If you'd rather I not include you, then let me know before August 1. 
+
 ### What if I'm dropping off/picking up my child?
 
-Please drop off your child at Oak Park Temple no later than 9:45am Saturday morning. <span style="color:red">We will provide transportation for your child from services at Oak Park to the luncheon/party in Countryside.</span> We will need your (the parents) permission for your child to take this transportation. We will have a member of our family on the bus/van. Please pick up your child at **Capri Banquets & Catering** in Countryside (address above) at 5pm. The party may continue to around 5:30pm, so stop in and say hi.  Note that I may send out an e-mail to those who are coming from particular areas (e.g. the lab) to facilitate car pooling. If you'd rather I not include you, then let me know. Thanks!
+Please drop off your child at Oak Park Temple no later than 9:45am Saturday morning. <span style="color:red">We will provide transportation for your child from services at Oak Park to the luncheon/party in Countryside.</span> We will need your (the parents) permission for your child to take this transportation. We will have a member of our family on the bus/van. Please pick up your child at **Capri Banquets & Catering** in Countryside (address above) at 5pm. The party may continue to around 5:30pm, so stop in and say hi.  Note that I may send out an e-mail to those who are coming from particular areas (e.g. near Fermilab; near Cass Jr. High) to facilitate car pooling. If you'd rather I not include you, then let me know before August 1. 
 
 ### Will I be fed?
 
