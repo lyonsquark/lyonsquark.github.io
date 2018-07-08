@@ -40,3 +40,9 @@ The front of the sanctuary is called the [bimah](https://www.myjewishlearning.co
 * Us - The parents get to sit on the bimah. We'll be watching all of you!
 
 Various people will come up to the bimah to do certain things. It is an honor to be "called to the bimah" (an [aliyah](https://www.myjewishlearning.com/article/aliyah/)). We have chosen particular family and friends to have these honors. 
+
+### What's a traditional thing to say to congratulate Pauline? 
+
+You probably already know [mazel tov](https://www.myjewishlearning.com/article/mazel-tov/), which is Hebrew for "good luck" and "congratulations". 
+
+You can also say *Yasher koach* (ya-sher ko-ach), which is [Yiddish](https://www.myjewishlearning.com/article/yiddish/) for "May your strength be directed in the right path." 
