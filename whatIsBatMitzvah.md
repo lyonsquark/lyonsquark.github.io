@@ -29,3 +29,14 @@ If you need to step out into the lobby, please do so quietly and come back in wh
 
 ### I can't make the service, can I still come to the party?
 As mentioned above, we very much hope that you will join us to support Pauline and see her reach the milestone that she has worked so hard to achieve. But if missing the service is unavoidable, then we would be very happy for you to join the celebration at the party in Countryside. 
+
+### Who are the people up on the stage?
+The front of the sanctuary is called the [bimah](https://www.myjewishlearning.com/article/bimah/). There will be various people up there...
+
+* Rabbi Weiss - he's the [rabbi](https://www.myjewishlearning.com/article/rabbi-teacher-preacher-judge-but-not-priest/) at Oak Park Temple and leads the service.
+* Cantor Green - The [cantor](https://www.myjewishlearning.com/article/the-cantor/) sings and chants the parts of the liturgy. She has also given Pauline many lessons for chanting her torah portion and prayers. 
+* Rabbi Kirzane - he's the assistant rabbi who just joined Oak Park Temple this summer (the congregation has grown large enough to need and support an assistant rabbi). 
+* Pauline - As the Bat Mitzvah, she will lead part of the service and read from the [Torah](https://www.myjewishlearning.com/article/the-torah/) and [Haftarah](https://www.myjewishlearning.com/article/haftarah/). 
+* Us - The parents get to sit on the bimah. We'll be watching all of you!
+
+Various people will come up to the bimah to do certain things. It is an honor to be "called to the bimah" (an [aliyah](https://www.myjewishlearning.com/article/aliyah/)). We have chosen particular family and friends to have these honors. 
