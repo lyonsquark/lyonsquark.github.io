@@ -1,5 +1,7 @@
 # Pauline's Bat Mitzvah
 
+Updated 7/29
+
 <span style="font-size:0.8em">Quick Links for this page (click): [Times of events](#time-line-of-the-celebration) | [Oak Park Temple address/directions](#oak-park-temple) | [Capri Banquets & Catering address/directions](#capri-banquets-catering)</span>
 
 ![](pauline.jpg)
@@ -12,16 +14,16 @@ If you have a question that is not answered here, do not hesitate to contact us 
 
 ## Time line of the celebration
 
-Here is what is happening. 
+Here is what is happening. All events begin <b>promptly</b> at the start time indicated. 
 
 | Who   | What   | When    | Where   |
 |:-------|:------|:--------|:--------|
-| Out of town guests |  Friday night dinner <BR/> (Chicago Style Pizza) | Friday 8/17 <BR/> 6:30pm (time may change)| Oak Park Temple |
-| Out of town guests who are here and anyone else who wants to come| Friday night service | Friday 8/17 <BR/> 8pm-9:30pm | Oak Park Temple | 
-| <span style="color:red">Everyone</span> | <span style="color:red">Bat Mitzvah Service</span> | <span style="color:red">Saturday 8/18 <BR/> 10am - noon</span> | <span style="color:red">Oak Park Temple</span> | 
-| <span style="color:red">Everyone</span> | <span style="color:red">Luncheon and Party</span> | <span style="color:red">Saturday 8/18 <BR/> 1pm - 5pm</span> | <span style="color:red">Capri Banquets & Catering, Countryside</span> | 
+| Out of town guests |  Friday night dinner <BR/> (Chicago Style Pizza) | Friday 8/17 <BR/> 6:30pm | Oak Park Temple |
+| Out of town guests and anyone else who wants to come| Friday night service | Friday 8/17 <BR/> 8pm-9:30pm | Oak Park Temple | 
+| <span style="color:red">Everyone</span> | <span style="color:red">Bat Mitzvah Service</span> | <span style="color:red">Saturday 8/18 <BR/> Starts 10am, Ends around noon</span> | <span style="color:red">Oak Park Temple</span> | 
+| <span style="color:red">Everyone</span> | <span style="color:red">Luncheon and Party</span> | <span style="color:red">Saturday 8/18 <BR/> Starts 1pm, Ends no later than 5pm</span> | <span style="color:red">Capri Banquets & Catering, Countryside</span> | 
 | Out of town guests | Informal get together and hot dog bar | Saturday 8/18  <BR/> (after the party) 5-10pm  | Our house in Willowbrook <BR/> 
-| Out of town guests | Tour of Fermilab | Sunday 8/19 <BR/> 10:00am  | Meet at our house in Willowbrook <BR/> <span style="font-size:0.8m">Closed-toe flat shoes are required for the tour (no sandals)</span>| 
+| Out of town guests | Tour of Fermilab | Sunday 8/19 <BR/> Meet at our house at 9am  | <span style="font-size:0.8m">Closed-toe flat shoes are <u>required</u> for the tour (no sandals)</span>| 
 | Out of town guests | Dinner at Greek Islands  | Sunday 8/19 <BR/> 6:30pm | Greek Islands, 300 E 22nd St, Lombard, IL 60148 | 
 | Out of town guests | Visit & Tour of Shedd Aquarium | Monday 8/20 <BR/> Meet at Shedd Aquarium accessible entrance at 9am (leave hotel at 8am)  | Shedd Aquarium, 1200 S. Lake Shore Drive, Chicago, IL 60527 |
 
@@ -29,7 +31,7 @@ Here is what is happening.
 
 #### Oak Park Temple
 
-`1235 Harlem Ave, Oak Park, IL 60302`. Phone: `(708) 386-3937`. Also see https://oakparktemple.com . Drop off is directly in front of the temple on Harlem Ave. or on the north side on Berkshire St., just past the building. There is a very small parking lot off of Harlem just before the temple building. If full, turn left at the end of the lot and proceed down the alley (watch for pedestrians at the sidewalk) and turn right onto Berkshire St. Then street park. Alternatively, pass the small parking lot on Harlem and turn right just past the temple building onto Berkshire St. Then street park. 
+`1235 Harlem Ave, Oak Park, IL 60302`. Phone: `(708) 386-3937`. Also see https://oakparktemple.com . Oak Park Temple is on the right side of Harlem Ave. just past Division St.  Drop off is directly in front of the temple on Harlem Ave. or on the north side on Berkshire St., just past the building. There is a very small parking lot off of Harlem just before the temple building (the next driveway after the gas station and Division St). If full, turn left at the end of the lot and proceed down the alley (watch for pedestrians at the sidewalk) and turn right onto Berkshire St. Then street park. Alternatively, pass the small parking lot on Harlem and turn right just past the temple building onto Berkshire St. Then street park. There are no parking restrictions other than those indicated by signage. 
 - [Map](https://www.google.com/maps/place/Oak+Park+Temple/@41.9027412,-87.8071949,17z/data=!3m1!4b1!4m5!3m4!1s0x880fcb321af07a6b:0xb064a1520bd6d3fb!8m2!3d41.9027372!4d-87.8050062)
 - [Directions](https://www.google.com/maps/dir/Best+Western+Plus+Chicagoland+-+Countryside,+Joliet+Road,+Countryside,+IL/Oak+Park+Temple,+1235+Harlem+Ave,+Oak+Park,+IL+60302/@41.8397401,-87.9136227,12z/data=!3m1!4b1!4m16!4m15!1m5!1m1!1s0x880e4835b8d4f883:0x5e6eedb10146be0b!2m2!1d-87.8730132!2d41.777754!1m5!1m1!1s0x880fcb321af07a6b:0xb064a1520bd6d3fb!2m2!1d-87.8050062!2d41.9027372!2m1!2b1!3e0) from Best Western Plus to Oak Park Temple (no tolls)
 - [Directions](https://www.google.com/maps/dir/Crowne+Plaza+Chicago+SW+-+Burr+Ridge,+S+Frontage+Road,+Burr+Ridge,+IL/Oak+Park+Temple,+1235+Harlem+Ave,+Oak+Park,+IL+60302/@41.8246462,-87.9511171,12z/data=!3m1!4b1!4m16!4m15!1m5!1m1!1s0x880e48babe2fc1f3:0x5e66b2dbb4a574e3!2m2!1d-87.9215302!2d41.7534609!1m5!1m1!1s0x880fcb321af07a6b:0xb064a1520bd6d3fb!2m2!1d-87.8050062!2d41.9027372!2m1!2b1!3e0) from Crowne Plaza to Oak Park Temple (no tolls)
@@ -52,11 +54,12 @@ Note that I may send out an e-mail to those who are coming from particular areas
 
 ### What if I'm dropping off/picking up my child?
 
-Please drop off your child at Oak Park Temple no later than 9:45am Saturday morning. <span style="color:red">We will provide transportation for your child from services at Oak Park to the luncheon/party in Countryside.</span> We will need your (the parents) permission for your child to take this transportation. We will have a member of our family on the bus/van. Please pick up your child at **Capri Banquets & Catering** in Countryside (address above) at 5pm. The party may continue to around 5:30pm, so stop in and say hi.  Note that I may send out an e-mail to those who are coming from particular areas (e.g. near Fermilab; near Cass Jr. High) to facilitate car pooling. If you'd rather I not include you, then let me know before August 1. 
+<B>Note that drop off and pick up are in different towns!</B> Please drop off your child at Oak Park Temple (1235 Harlem Ave, Oak Park) no later than 9:45am Saturday morning. <span style="color:red">To make things easier, we can drive unaccompanied children from services at Oak Park to the luncheon/party in Countryside with their parent’s permission.</span> If you would prefer to drive your own child between the venues, please pick up your child at 12:15pm at Oak Park Temple and drive them to Capri Banquets & Catering (6240 Joliet Road, Countryside). When the party is over, please pick up your child at Capri Banquets & Catering in Countryside <b>no later than 5pm</b>. Note that I may send out an e-mail to those who are coming from particular areas (e.g. near Fermilab; near Cass Jr. High) to facilitate car-pooling. If you’d rather I not include you, then let me know before August 1.
+
 
 ### Will I be fed?
 
-YES! Directly after the Saturday morning service small sandwiches and other finger food will be served at the temple to keep you sustained as you drive from Oak Park to Countryside (or if you are a kid without your parents, ride the bus we are providing). The luncheon will start soon after everyone arrives at the banquet hall. The caterer is from the excellent Capri Restaurant (Italian food) in Burr Ridge. We promise you will not go hungry! 
+YES! Directly after the Saturday morning service at the temple vegetarian and dairy appetizers and snacks as well as non-alcoholic drinks will be provided. Following that there will be a full Italian luncheon buffet and a selection of alcoholic and non-alcoholic drinks at the banquet hall. (The caterer owns the excellent Capri Restaurant (Italian food) in Burr Ridge). We promise you will not go hungry!
 
 Please let us know ahead of time if you have any dietary restrictions.
 
