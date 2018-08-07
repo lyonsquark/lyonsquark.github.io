@@ -2,7 +2,7 @@
 
 Updated 7/29
 
-<span style="font-size:0.8em">Quick Links for this page (click): [Times of events](#time-line-of-the-celebration) | [Oak Park Temple address/directions](#oak-park-temple) | [Capri Banquets & Catering address/directions](#capri-banquets-catering)</span>
+<span style="font-size:0.8em">Quick Links for this page (click): [Times of events](#time-line-of-the-celebration) | [Oak Park Temple address/directions](#oak-park-temple) | [Capri Banquets & Catering address/directions](#capri-banquets-catering) | [Drop off/Pick up Info](#drop-off-and-pick-up-information)</span>
 
 ![](pauline.jpg)
 
@@ -52,7 +52,7 @@ Driving from Oak Park Temple to Capri Banquets & Catering in Countryside should 
 
 Note that I may send out an e-mail to those who are coming from particular areas (e.g. near Fermilab; near Cass Jr. High) to facilitate car pooling. If you'd rather I not include you, then let me know before August 1. 
 
-### What if I'm dropping off/picking up my child?
+### Drop off and pick up information
 
 <B>Note that drop off and pick up are in different towns!</B> Please drop off your child at Oak Park Temple (1235 Harlem Ave, Oak Park) no later than 9:45am Saturday morning. <span style="color:red">To make things easier, we can drive unaccompanied children from services at Oak Park to the luncheon/party in Countryside with their parent’s permission.</span> If you would prefer to drive your own child between the venues, please pick up your child at 12:15pm at Oak Park Temple and drive them to Capri Banquets & Catering (6240 Joliet Road, Countryside). When the party is over, please pick up your child at Capri Banquets & Catering in Countryside <b>no later than 5pm</b>. Note that I may send out an e-mail to those who are coming from particular areas (e.g. near Fermilab; near Cass Jr. High) to facilitate car-pooling. If you’d rather I not include you, then let me know before August 1.
 
