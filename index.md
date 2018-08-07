@@ -1,6 +1,6 @@
 # Pauline's Bat Mitzvah
 
-Updated 7/29
+Updated 8/7
 
 <span style="font-size:0.8em">Quick Links for this page (click): [Times of events](#time-line-of-the-celebration) | [Oak Park Temple address/directions](#oak-park-temple) | [Capri Banquets & Catering address/directions](#capri-banquets-catering) | [Drop off/Pick up Info](#drop-off-and-pick-up-information)</span>
 
