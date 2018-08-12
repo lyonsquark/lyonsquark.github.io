@@ -1,6 +1,6 @@
 # Pauline's Bat Mitzvah
 
-Updated 8/7
+Updated 8/12
 
 <span style="font-size:0.8em">Quick Links for this page (click): [Times of events](#time-line-of-the-celebration) | [Oak Park Temple address/directions](#oak-park-temple) | [Capri Banquets & Catering address/directions](#capri-banquets-catering) | [Drop off/Pick up Info](#drop-off-and-pick-up-information)</span>
 
@@ -61,7 +61,7 @@ Note that I may send out an e-mail to those who are coming from particular areas
 
 YES! Directly after the Saturday morning service at the temple vegetarian and dairy appetizers and snacks as well as non-alcoholic drinks will be provided. Following that there will be a full Italian luncheon buffet and a selection of alcoholic and non-alcoholic drinks at the banquet hall. (The caterer owns the excellent Capri Restaurant (Italian food) in Burr Ridge). We promise you will not go hungry!
 
-Please let us know ahead of time if you have any dietary restrictions.
+Please let us know ahead of time if you have any dietary restrictions. Good vegetarian options will be available. 
 
 ### What will be at the party?
 
