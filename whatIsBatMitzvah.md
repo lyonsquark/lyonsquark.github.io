@@ -18,6 +18,9 @@ Yes! We belong to this temple because the clergy and congregation are very warm 
 ### What is the decorum for the service?
 Cell phones must be silenced or turned off. Taking pictures and videos are not permitted during the service (you'll notice that our photographer will be relegated to a loft some distance away; you may see a stationary phone taking video - we have the Rabbi's permission to privately stream the service for family who cannot travel). If you need to chat with someone louder than a whisper, then you should step out into the lobby (see below). Applause, even if Pauline or someone else does something awesome, is generally not allowed. You can congratulate Pauline at the end of the service and at the party. 
 
+### Will I be asked to make a donation to the temple or will there be a collection basket/plate be passed around?
+None of those things will happen. 
+
 ### If I stand up at a particular time, follow along to a certain prayer or song, or wear a kippah, am I at risk of changing my religion?
 If this is a real concern, rest assured that the answer is no. Converting to Judaism involves a long process of study and many meetings with a rabbi. Except for being born into a Jewish family, it is not possible to become jewish inadvertently or instantly. There will be times in the service when everyone will stand (see below); this is out of respect and does not constitute any affirmation of religious belief. We hope you will feel comfortable standing with us. Similarly, wearing a kippah (see below) is also done out of respect. 
 
