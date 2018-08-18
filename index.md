@@ -22,7 +22,7 @@ Here is what is happening. All events begin <b>promptly</b> at the start time in
 | Out of town guests and anyone else who wants to come| Friday night service | Friday 8/17 <BR/> 8pm-9:30pm | Oak Park Temple | 
 | <span style="color:red">Everyone</span> | <span style="color:red">Bat Mitzvah Service</span> | <span style="color:red">Saturday 8/18 <BR/> Starts 10am, Ends around noon</span> | <span style="color:red">Oak Park Temple</span> | 
 | <span style="color:red">Everyone</span> | <span style="color:red">Luncheon and Party</span> | <span style="color:red">Saturday 8/18 <BR/> Starts 1pm, Ends no later than 5pm</span> | <span style="color:red">Capri Banquets & Catering, Countryside</span> | 
-| Out of town guests | Informal get together and hot dog bar | Saturday 8/18  <BR/> (after the party) 5-10pm  | Our house in Willowbrook <BR/> 
+| Out of town guests | Informal get together and hot dog bar | Saturday 8/18  <BR/> (a bit after the party) 7-10pm  | Our house in Willowbrook <BR/> 
 | Out of town guests | Tour of Fermilab | Sunday 8/19 <BR/> Meet at our house at 9am  | <span style="font-size:0.8m">Closed-toe flat shoes are <u>required</u> for the tour (no sandals)</span>| 
 | Out of town guests | Dinner at Greek Islands  | Sunday 8/19 <BR/> 6:30pm | Greek Islands, 300 E 22nd St, Lombard, IL 60148 | 
 | Out of town guests | Visit & Tour of Shedd Aquarium | Monday 8/20 <BR/> Meet at Shedd Aquarium accessible entrance at 9am (leave hotel at 8am)  | Shedd Aquarium, 1200 S. Lake Shore Drive, Chicago, IL 60527 |
